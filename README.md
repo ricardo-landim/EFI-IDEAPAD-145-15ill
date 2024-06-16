@@ -1,0 +1,1 @@
+# EFI-IDEAPAD-145-15ill
